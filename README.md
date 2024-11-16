@@ -8,8 +8,6 @@
 - 💬 Ask me about **My life**
 
 - 📫 How to reach me **Chonchanin.boom@hotmail.com**
-
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
